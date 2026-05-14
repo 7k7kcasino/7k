@@ -109,7 +109,7 @@
 </p>
 
 ## Игры и слоты
-<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/CL0G1vY0/7k-kazino-igrovye-avtomaty.png'' border='0' alt='dragonmanislots'></a>
+<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/CL0G1vY0/7k-kazino-igrovye-avtomaty.png'' border='0' alt='7k-kazino-igrovye-avtomaty'></a>
 
 **7к казино** предлагает обширную коллекцию игр от ведущих провайдеров:
 - Pragmatic Play  
@@ -141,7 +141,7 @@
 
 ## Мобильная версия и приложение
 <p>
- &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/g2zWxXpQ/dragon-11.jpg' border='0' alt='dragonmoney'></a>
+ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/7Pt4PRST/7k-kazino-mobilnaya-versiya.png' border='0' alt='7k-kazino-mobilnaya-versiya'></a>
 </p>
 
 Мобильная версия **7к казино** полностью адаптирована под смартфоны и планшеты. Сайт автоматически подстраивается под размер экрана и сохраняет весь функционал.
