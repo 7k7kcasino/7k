@@ -108,8 +108,9 @@
 </p>
 
 ## Игры и слоты
+<p>
 <a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/CL0G1vY0/7k-kazino-igrovye-avtomaty.png'' border='0' alt='7k-kazino-igrovye-avtomaty'></a>
-
+</p>
 **7к казино** предлагает обширную коллекцию игр от ведущих провайдеров:
 - Pragmatic Play  
 - NetEnt  
