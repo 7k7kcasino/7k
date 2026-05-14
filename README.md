@@ -1,6 +1,6 @@
 # ✅ **Официальное зеркало 7к казино на сегодня бесплатно**
 <p>
-<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/ZqPKGtJQ/drm.png' border='0' alt='dragonmoneyofficial'></a>
+<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/pr4yK68N/7kcasino.png' border='0' alt='7k-casino'></a>
 </p>
 <p>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  <a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/YSwMtn9S/Screenshot-13.png' border='0' alt='dragonmanivhod'></a> &nbsp;&nbsp;&nbsp;&nbsp; 
