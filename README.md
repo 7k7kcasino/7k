@@ -109,7 +109,7 @@
 </p>
 
 ## Игры и слоты
-<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/90LVYZGy/Screenshot-15.png' border='0' alt='dragonmanislots'></a>
+<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/CL0G1vY0/7k-kazino-igrovye-avtomaty.png'' border='0' alt='dragonmanislots'></a>
 
 **7к казино** предлагает обширную коллекцию игр от ведущих провайдеров:
 - Pragmatic Play  
