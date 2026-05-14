@@ -71,7 +71,7 @@
 Если основной сайт недоступен, можно воспользоваться **зеркалом 7к казино** — альтернативной ссылкой с идентичным функционалом. Повторная регистрация не требуется.
 
 <p>
-<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/Hk65xdsp/Screenshot-23.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a> <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/4NVRsxPn/Screenshot-23.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href='[https://postimages.org/](https://clck.ru/3RNrZY)' target='_blank'><img src='https://i.postimg.cc/D0xLRTNY/7k-kazino-registracziya-i-vkhod.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a>   
 </p>
 
 ✅ [Перейти на официальный сайт](https://clck.ru/3QwAfa)
@@ -104,7 +104,7 @@
 - эксклюзивные призы.
 ---
 <p>
-<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/Hk65xdsp/Screenshot-23.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a> <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/4NVRsxPn/Screenshot-23.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href='[https://postimages.org/](https://clck.ru/3RNrZY)' target='_blank'><img src='https://i.postimg.cc/D0xLRTNY/7k-kazino-registracziya-i-vkhod.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a>   
 </p>
 
 ## Игры и слоты
@@ -133,7 +133,7 @@
 
 Все игры доступны как в платном, так и в демо-режиме.
 <p>
-<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/Hk65xdsp/Screenshot-23.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a> <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/4NVRsxPn/Screenshot-23.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href='[https://postimages.org/](https://clck.ru/3RNrZY)' target='_blank'><img src='https://i.postimg.cc/D0xLRTNY/7k-kazino-registracziya-i-vkhod.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a>   
 </p>
 ---
 
@@ -166,7 +166,7 @@
 
 Пополнение счёта происходит без комиссий, что позволяет полностью контролировать игровой бюджет.
 <p>
-<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/Hk65xdsp/Screenshot-23.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a> <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/4NVRsxPn/Screenshot-23.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href='[https://postimages.org/](https://clck.ru/3RNrZY)' target='_blank'><img src='https://i.postimg.cc/D0xLRTNY/7k-kazino-registracziya-i-vkhod.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a>   
 </p>
 
 ---
@@ -200,7 +200,7 @@ VIP-клуб **7к казино** предназначен для активны
 
 Персональные данные пользователей не передаются третьим лицам.
 <p>
-<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/Hk65xdsp/Screenshot-23.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a> <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/4NVRsxPn/Screenshot-23.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href='[https://postimages.org/](https://clck.ru/3RNrZY)' target='_blank'><img src='https://i.postimg.cc/D0xLRTNY/7k-kazino-registracziya-i-vkhod.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a>   
 </p>
 
 ✅ [Перейти на официальный сайт](https://clck.ru/3QwAfa)
@@ -227,6 +227,6 @@ VIP-клуб **7к казино** предназначен для активны
 Используйте **зеркало 7к казино** — альтернативную ссылку с полным доступом ко всем функциям без повторной регистрации.
 
 <p>
-<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/Hk65xdsp/Screenshot-23.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a> <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/4NVRsxPn/Screenshot-23.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href='[https://postimages.org/](https://clck.ru/3RNrZY)' target='_blank'><img src='https://i.postimg.cc/D0xLRTNY/7k-kazino-registracziya-i-vkhod.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a>   
 </p>
 
