@@ -3,8 +3,10 @@
 <a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/pr4yK68N/7kcasino.png' border='0' alt='7k-casino'></a>
 </p>
 <p>
-<a href='https://clck.ru/3RNrZY' target='_blank'><img src='https://i.postimg.cc/Hk65xdsp/Screenshot-23.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a> <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/4NVRsxPn/Screenshot-23.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <a href='[https://postimages.org/](https://clck.ru/3RNrZY)' target='_blank'><img src='https://i.postimg.cc/D0xLRTNY/7k-kazino-registracziya-i-vkhod.png' border='0' alt='7k-kazino-registracziya-i-vkhod'></a>   
+
 </p>
+
 # 7к казино зеркало, рабочее на сегодня: вход на сайт 7к казино в личный кабинет
 
 
